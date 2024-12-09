@@ -1,1 +1,1 @@
-# -Introduction-New-threat-in-town.-
+# [Introduction] New threat in town.
